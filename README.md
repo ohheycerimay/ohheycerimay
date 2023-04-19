@@ -15,7 +15,7 @@
 
 - 💬 Ask me about **Anything!**
 
-- 📫 How to reach me **ohheycerimay@gmail.com**
+- 📫 Contact me at [ohheycerimay.com](ohheycerimay.com)
 
 - 📄 Know about my experiences [https://www.canva.com/design/DAFb4n78YFE/qEaKwKuQqTUXDEwiHprCmQ/edit?utm_content=DAFb4n78YFE&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAFb4n78YFE/qEaKwKuQqTUXDEwiHprCmQ/edit?utm_content=DAFb4n78YFE&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
