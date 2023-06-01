@@ -5,7 +5,7 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=ohheycerimay" alt="ohheycerimay" /></a> </p>
 
-- 🔭 I’m currently working on [Mern Shop](https://github.com/ohheycerimay/MERN-shop)
+- 🔭 I’m currently working on [Movie Personality Quiz](https://github.com/david44868/Movie-Personality-Test)
 
 - 🌱 I’m currently learning **Mongo DB, Typescript, Python**
 
